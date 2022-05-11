@@ -1,1 +1,0 @@
-# cloudhosting_exmaple
